@@ -1,0 +1,1 @@
+# Bekzodse-skills-scale-institutional-knowledge-using-copilot-spaces
